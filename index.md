@@ -1,1 +1,3 @@
-Dataspel, rollespel, turar og kunst.
+Velkomen!
+
+Her skriv eg korte tekstar om ting eg tykkjer er interessant.
